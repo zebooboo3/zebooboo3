@@ -6,7 +6,7 @@
 <br>
 <br>
     </div> <div align="center">
-      　　𝘢𝘯𝘺, 𝘯𝘰 𝘴𝘩𝘦 　 　:　  　𝘣𝘦 𝘤𝘢𝘶𝘵𝘪𝘰𝘶𝘴 𝘯𝘦𝘢𝘳 𝘮𝘦
+      　any except she 　 　:　  　16 y/o, iayor lol
       <br>
          𝘪 𝘩𝘢𝘷𝘦 𝘴𝘤𝘩𝘪𝘻𝘰𝘱𝘩𝘳𝘦𝘯𝘪𝘢, 𝘪 𝘥𝘰𝘯𝘵 𝘵𝘢𝘭𝘬 𝘢𝘣𝘰𝘶𝘵 𝘪𝘵 𝘮𝘶𝘤𝘩
       <br>
