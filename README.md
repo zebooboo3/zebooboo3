@@ -19,7 +19,7 @@
       <br>
       dni if your gonna bitch about everything
       <br>
-      (oh and dark/proship n basic dni)
+      (oh and dark/proship n basic dni, ABSOLUTE DNI OF FORSAKEN FANDOM/LIKERS OHHHH)
       <br>
       <br>
       yes i kin ze how could you tell
