@@ -19,6 +19,9 @@
       <br>
       dni if your gonna bitch about everything
       <br>
+      (oh and dark/proship n basic dni)
+      <br>
+      <br>
       yes i kin ze how could you tell
       <br>
       <br>
