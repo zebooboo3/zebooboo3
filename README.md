@@ -16,6 +16,7 @@
 </tr>
 </table>
 <img align="right" width="400" height="400" alt="New Project" src="https://github.com/user-attachments/assets/6a151f0a-0001-4518-8f38-dffdc9fe10dc" />
+<div align="center">
 <table>
   <tr>
     <th>
