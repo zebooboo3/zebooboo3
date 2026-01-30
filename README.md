@@ -13,7 +13,7 @@
       $\color{lightskyblue}{\textsf{ Any except she }}$ <br>
       <br>
       $\color{lightskyblue}{\textsf{ Diagnosed Autism + Schizophrenia, be careful }}$ <br>
-      $\color{lightskyblue}{\textsf{ I heavily kin Ze, icrcl  about doubles. (my brother just another me) }}$ <br>
+      $\color{lightskyblue}{\textsf{ I heavily kin Ze, icrcl  about doubles. }}$ <br>
       $\color{lightskyblue}{\textsf{ (my brother just another me) }}$ <br>
 </th>
 </tr>
