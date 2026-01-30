@@ -1,6 +1,3 @@
-</div> <div align="center"> <img width="500" height="466" alt="Picsart-24-07-04-11-59-06-928 (1)" src="https://github.com/user-attachments/assets/a122294f-dd9d-4a6d-baba-82a4737680fd" />
-  <br>
-  <br>
 <p align="left">
  $${\color{blue}\small\texttt{ THEY\ SAY\ YOU'RE\ STUPID-\ {}}}$$
 </p>
